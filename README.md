@@ -9,4 +9,4 @@
 
 ### Home Page
 ![ảnh](https://github.com/user-attachments/assets/140b77ff-e9cb-411a-a6d0-b628c248299e)
-![ảnh](https://github.com/user-attachments/assets/9700354a-8045-4dac-9920-41abee38a59b)
+![ảnh](https://github.com/user-attachments/assets/c8ef1862-682a-4ba3-a34e-1191fb4eb549)
